@@ -1,1 +1,1 @@
-# spinteriors.com
+spinteriors.com
